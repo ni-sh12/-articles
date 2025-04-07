@@ -49,3 +49,5 @@
   Keep adjusting your description until you get the result you like.
 
   With just a few words and some creativity, ChatGPT-4o can turn any simple idea into a beautiful piece of art. Try different versions and have fun exploring the world of AI-generated images!
+
+  For Reading in Hindi-https//hindinewslive.in
